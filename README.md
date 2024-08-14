@@ -2,6 +2,8 @@
 
 _meu nome e Angella Fernanda 🌸
 
+_ estou me desenvolvendo na [Alura](https://www.alura.com.br)
+
 _estou no ensino medio 🎒
 
 _amo gatos 🐈
